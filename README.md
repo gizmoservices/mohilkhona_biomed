@@ -1,1 +1,0 @@
-# mohilkhona_biomed
